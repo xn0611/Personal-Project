@@ -1,2 +1,2 @@
 # Personal-Project
-To collection my thoughts in this messy world
+To collect my thoughts in this messy world
